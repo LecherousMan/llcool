@@ -1,1 +1,2 @@
-# 疾速云最新网站：https://202312.llcool.net
+# ⬇️点击进入⬇️
+https://202312.llcool.net
