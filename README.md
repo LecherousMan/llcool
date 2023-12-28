@@ -1,1 +1,1 @@
-# 疾速云最新网站：https://202312.llcool.net 点击打开
+# 疾速云最新网站：https://202312.llcool.net
